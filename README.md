@@ -39,8 +39,8 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 * ETH - 0x551cf5327df418ed4808cc5d764a36a5324b824b
 
 ### Comparte con tus amigos estas promociones
-+ [Share on Twitter](http://twitter.com/home?status=https://github.com/aluzardo/promociones%0AEnlaces%20Promocionales%20Adolfo)
-+ [Share on Facebook](http://www.facebook.com/sharer/sharer.php?s=100&p[url]=https://github.com/aluzardo/promociones&p[images][0]=&p[title]=Free%20Programming%20Books&p[summary]=)
-+ [Share on Google Plus](https://plus.google.com/share?url=https://github.com/aluzardo/promociones)
-+ [Share on LinkedIn](http://www.linkedin.com/shareArticle?mini=true&url=https://github.com/aluzardo/promociones&title=Free%20Programming%20Books&summary=&source=)
-+ [Share on Telegram](https://t.me/share/url?url=https://github.com/aluzardo/promociones)
++ [Share on Twitter](http://twitter.com/home?status=https://aluzardo.github.io/promociones/%0AEnlaces%20Promocionales%20de%20Adolfo)
++ [Share on Facebook](http://www.facebook.com/sharer/sharer.php?s=100&p[url]=https://aluzardo.github.io/promociones/&p[images][0]=&p[title]=Enlaces%20Promocionales%20de%20Adolfo&p[summary]=)
++ [Share on Google Plus](https://plus.google.com/share?url=https://aluzardo.github.io/promociones/)
++ [Share on LinkedIn](http://www.linkedin.com/shareArticle?mini=true&url=https://aluzardo.github.io/promociones/&title=Enlaces%20Promocionales%20de%20Adolfo&summary=&source=)
++ [Share on Telegram](https://t.me/share/url?url=https://aluzardo.github.io/promociones/)

@@ -23,6 +23,9 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 * Binance.je ( [https://www.binance.je/?ref=35064828](https://www.binance.je/?ref=35064828) )
 * Coinsbank ( [https://coinsbank.com/app/signup?r=12500602](https://coinsbank.com/app/signup?r=12500602) )
 * Ledger ( [https://www.ledger.com?r=b6e1606beefb](https://www.ledger.com?r=b6e1606beefb) ) - Actualmente tienen 30% de descuento si utilizas el enlace pero suelen cambiar.
+* Coinsbit ( [https://coinsbit.io/referral/78ba2962-7d8c-4cbc-b54f-861d561b7f4f](https://coinsbit.io/referral/78ba2962-7d8c-4cbc-b54f-861d561b7f4f) ) - 2000 CNB de regalo
+* Coinbase Earn. Regale a sus amigos: OXT. Obtendrán acceso especial para conseguir OXT y usted recibirá 10 US$ en OXT por cada amigo que complete una lección. [https://coinbase.com/earn/oxt/invite/rzjs8b49](https://coinbase.com/earn/oxt/invite/rzjs8b49)
+
 
 ### Viajes
 
@@ -36,6 +39,7 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 * Mintos ( [www.mintos.com/es/l/ref/IS95WK](www.mintos.com/es/l/ref/IS95WK) ) - Es una plataforma de Crowlending y puedes ganar entre 10 y 1000 euros extras dependiendo de tu inversión si utilizas este enlace.
 * Revolut ( [https://revolut.com/referral/adolfod8t!G10D21](https://revolut.com/referral/adolfod8t!G10D21) ) - Ahora en Agosto de 2019 tienen una promocion que te dan 10 euros pero normalmente solo te regalan una tarjeta gratis.
 * Monese ( [https://monese.app.link/kANfkifAfZ?invite=ADOLF760](https://monese.app.link/kANfkifAfZ?invite=ADOLF760) ) - Te dan 15 Euros usando código ADOLF760. Tienes que utilizar la tarjeta al menos una vez para que te den los 15 euros.
+* Indexa Capital ( [https://indexacapital.com/es/t/5z0jmz](https://indexacapital.com/es/t/5z0jmz)) 10000 euros gratis de comisiones durante un año.
 
 
 ### Donaciones

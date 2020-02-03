@@ -31,6 +31,8 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 
 * Booking ( [https://www.booking.com/s/34_6/400bd1bf](https://www.booking.com/s/34_6/400bd1bf) ) - Cuando tus amigos reserven con este enlace y se alojen, recibirás € 15 y ellos tendrán un premio de € 15.
 * Booking ( [https://join.booking.com/r/d/cbab164c?lang=es&p=4](https://join.booking.com/r/d/cbab164c?lang=es&p=4) ) - Por cada amigo que use tu enlace de recomendación para dar de alta su apartamento, bed and breakfast o cualquier tipo de alojamiento, conseguirás € 100 en crédito para viajar.
+* AirBNB ( [https://www.airbnb.es/c/adolfol208?currency=EUR](https://www.airbnb.es/c/adolfol208?currency=EUR) ) 23 euros
+
 
 ### Finanzas
 

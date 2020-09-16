@@ -38,7 +38,7 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 
 * Fintonic ( [https://bit.ly/2zPQiYX?r=adolfolu5](https://bit.ly/2zPQiYX?r=adolfolu5) ) - Te dan un vale de 5 euros en amazon tanto a tí como a mí si utilizas el enlace.
 * DeGiro ( [https://www.degiro.es/amigo-invita-amigo/empezar-a-invertir.html?id=F694F9C1&referral_name=Adolfo%20Luzardo%20Cabrera&utm_source=mgm](https://www.degiro.es/amigo-invita-amigo/empezar-a-invertir.html?id=F694F9C1&referral_name=Adolfo%20Luzardo%20Cabrera&utm_source=mgm) ) - Te dan 20 Euros en comisiones si te registras en este broker de bolsa utilizando el enlace.
-* Mintos ( https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK](https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK) ) - Es una plataforma de Crowlending y puedes ganar entre 10 y 1000 euros extras dependiendo de tu inversión si utilizas este enlace.
+* Mintos ( [https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK](https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK) ) - Es una plataforma de Crowlending y puedes ganar entre 10 y 1000 euros extras dependiendo de tu inversión si utilizas este enlace.
 * Revolut ( [https://revolut.com/referral/adolfod8t!G10D21](https://revolut.com/referral/adolfod8t!G10D21) ) - Ahora en Agosto de 2019 tienen una promocion que te dan 10 euros pero normalmente solo te regalan una tarjeta gratis.
 * Monese ( [https://monese.app.link/kANfkifAfZ?invite=ADOLF760](https://monese.app.link/kANfkifAfZ?invite=ADOLF760) ) - Te dan 15 Euros usando código ADOLF760. Tienes que utilizar la tarjeta al menos una vez para que te den los 15 euros.
 * Indexa Capital ( [https://indexacapital.com/es/t/5z0jmz](https://indexacapital.com/es/t/5z0jmz)) 10000 euros gratis de comisiones durante un año.

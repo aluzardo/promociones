@@ -23,7 +23,6 @@ Es posible que el procedimiento para obtener los beneficios sea un poco diferent
 
 ### Finanzas
 
-* DeGiro ( [https://www.degiro.es/amigo-invita-amigo/empezar-a-invertir.html?id=F694F9C1&referral_name=Adolfo%20Luzardo%20Cabrera&utm_source=mgm](https://www.degiro.es/amigo-invita-amigo/empezar-a-invertir.html?id=F694F9C1&referral_name=Adolfo%20Luzardo%20Cabrera&utm_source=mgm) ) - Te dan 20 Euros en comisiones si te registras en este broker de bolsa utilizando el enlace.
 * Mintos ( [https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK](https://www.mintos.com/en/l/ref/MINTOSCLUB.IS95WK) ) - Es una plataforma de Crowlending y puedes ganar entre 10 y 1000 euros extras dependiendo de tu inversión si utilizas este enlace.
 * Revolut ( [https://revolut.com/referral/adolfod8t!AUG2AGG](https://revolut.com/referral/adolfod8t!AUG2AGG) ) - Ahora en Agosto 2021 tienen una promocion que te dan 20 euros pero normalmente solo te regalan una tarjeta gratis.
 * Monese ( [https://www.mone.se/7vQs/e20350bf](https://www.mone.se/7vQs/e20350bf) ) - Te dan 20 Euros usando código ADOLF760. 
